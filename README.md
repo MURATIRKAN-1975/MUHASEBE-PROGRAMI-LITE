@@ -1,4 +1,4 @@
-MURAT IRKAN TİCARİ PAKET SERİSİ
+MURAT IRKAN TİCARİ PAKET SERİSİ  + CARİ FATURA PROGRAMI
 ZÜMRÜT ÖN MUHASEBE LITE VERSİYONU
 DESTEKLENEN İŞLETİM SİSTEMLERİ: WINDOWS - LINUX - MAC OS - ANDROID 
 *******************************************************************
